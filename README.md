@@ -1,1 +1,0 @@
-# parushb.github.io
